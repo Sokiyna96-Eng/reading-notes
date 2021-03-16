@@ -15,8 +15,12 @@ There are two different types of mindset 	:brain: :
 - Those with a ***growth mindset***, on the other hand, believe that these abilities can be developed and strengthened by way of commitment and hard work.
 
 
-#### For Example:
- If you say, “I'm not a math person” then that belief acts as an easy excuse to avoid practicing maththe **fixed mindset** prevents you from failing in the short–run, but in the long–run it hinders your ability to learn, grow, and develop new skills.Meanwhile, someone with a **growth mindset** would be willing to try math problems even if they failed at first. They see failure and setbacks as an indication that they should continue developing their skills rather than a signal that indicates.
+#### Reminder:
+
+1.Stay Postitive .
+2. Keep learning whatever time it take.
+3. be open to all new peoples and ideas. 
+
  
  :bouquet:	***About Me*** :bouquet:	
 
