@@ -11,6 +11,7 @@ I am Sokiyna, a junior software developer but full of enthusiasm to develop my s
 | lab02a         |     [lab02a](lab02a.md)   |
 | read03         |    [read03](read03.md)    |
 | read04a        |    [read04a](read04a.md)  |
+| read05         |    [read05](read05.md)    |
 
 
  
